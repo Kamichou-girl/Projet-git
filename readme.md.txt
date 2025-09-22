@@ -1,0 +1,6 @@
+comment utiliser git
+1 GYHUJIKOLPM¨
+CVGBHNJ?KL.
+HBJKL
+
+G HBJKL
